@@ -1,1 +1,0 @@
-# haranbaa.github.io
